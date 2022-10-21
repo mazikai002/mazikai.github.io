@@ -1,0 +1,1 @@
+# mazikai.github.io
